@@ -4,3 +4,5 @@ ALLAH İzin Verirse transfer işlemi ve borç senedi yazım ücretlerinin sabit 
 aşağıdaki kaspa karşılıksız riba ediyor bu şirk! ancak ALLAH'ın izniyle asal şifreleme algoritmasının hızlı olduğu söyleniyor, ALLAH izin verirse incele:
 
 check kaspa crypto algorithms İnşALLAH https://github.com/kaspanet/rusty-kaspa
+
+![](IMG_5152.jpeg)
